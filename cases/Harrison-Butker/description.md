@@ -23,4 +23,5 @@ watch?v=-JS7RIKSaCc)
 To summarize:
 
 Truth: Butker's speech promotes traditional family roles and critiques modern societal changes from a conservative Catholic perspective.
+
 Misinterpretation: The exact inflammatory quotes attributed to him in the meme and Reddit comment are not found in the transcript, indicating a degree of hyperbole and misrepresentation by his critics.
